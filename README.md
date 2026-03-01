@@ -1,5 +1,7 @@
 ## greetings
 this sucks why are you here
+https://www.youtube.com/@FifthPerfectNumber 
+channel with something in it idk
 
 <!--
 **FifthPerfectNumber/FifthPerfectNumber** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
